@@ -1,1 +1,1 @@
-### Hello world! 👋🌎
+### Hello world! 🌎
